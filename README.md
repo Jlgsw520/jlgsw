@@ -14,4 +14,4 @@
 
 ## [下载奖励OSNXET2.5版本](https://mc.dfrobot.com.cn/data/attachment/forum/202412/15/144829npoj2ipmj60p2xna.zip)
 
-
+## [下载奖励OSNXET2.0版本](https://mc.dfrobot.com.cn/data/attachment/forum/202411/17/125945m30hz3omojxb0xuu.zip)
