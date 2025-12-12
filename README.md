@@ -6,6 +6,11 @@
 
 ## [我的mind+论坛主页](https://mc.dfrobot.com.cn/home.php?mod=space&uid=864288)
 
+# 公告
+* * *
+
+## 这是一条公告
+
 # 下载
 * * *
 # 下载奖励OSNEXT的所有版本
