@@ -1,5 +1,5 @@
 # 奖励哥是王的官方网站
-![](https://mindplus.cc/images/logo_m.png)
+[!](https://img.dfrobot.com.cn//5c9b173d3ff6f3101116c01b/54fb65453dc6588526809577899df3d7.jpg)](https://mindplus.cc)
 * * *
 
 ## [mind+官网](http://www.mindplus.cc)
